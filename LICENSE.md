@@ -1,10 +1,10 @@
-احترافي Surfshark عميل | دعم PPTP + دعم التورنت هو أفضل Surfshark عميل مع دعم PPTP و دعم التورنت. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/surfshark-po92/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
