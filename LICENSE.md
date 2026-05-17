@@ -1,10 +1,10 @@
-Profissional Surfshark Cliente | suporte PPTP + suporte a torrent é o melhor Surfshark cliente com suporte PPTP e suporte a torrent. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/surfshark-po92/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
